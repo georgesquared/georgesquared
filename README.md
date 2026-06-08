@@ -1,7 +1,8 @@
 <p align="center">
 
-![](https://komarev.com/ghpvc/?username=hadestovvn&label=🪽&color=grey)
+![](https://komarev.com/ghpvc/?username=hadestovvn&label=georgesquared_canon&color=grey)
 
+![](https://files.catbox.moe/2xj60t.jpeg)
 
 </p>
 
