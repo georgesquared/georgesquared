@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=hadestovvn&label=georgesquared_canon&color=grey)
 
-![](https://files.catbox.moe/2xj60t.jpeg)
+![](https://i.postimg.cc/Y0W9Bzcn/IMG-2373.jpg)
 
 </p>
 
